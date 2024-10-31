@@ -1,3 +1,3 @@
-- 👋 Hi, I’m the owner of GASANT AJAM ENTERPRISES
-- 👀 I’m interested in buying and selling
-- 📫 You can reach me by cell @ 0842380985 or 786gasant@gmail.com
+ GASANT AJAM ENTERPRISES
+ I’m interested in buying and selling
+ You can reach me by cell @ 0842380985 or 786gasant@gmail.com
